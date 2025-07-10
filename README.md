@@ -1,0 +1,1 @@
+# Smart-Crop-Advisor-for-Small-Scale-Farmers-main
